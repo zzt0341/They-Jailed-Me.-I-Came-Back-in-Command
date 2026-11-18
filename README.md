@@ -1,6 +1,6 @@
 # 🎬 They Jailed Me. I Came Back in Command
 
-![Drama Poster / Cover Image](REPLACE_WITH_YOUR_IMAGE_URL)
+![Drama Poster / Cover Image](https://github.com/zzt0341/They-Jailed-Me.-I-Came-Back-in-Command/blob/main/Snipaste_2026-11-18_19-16-20.png)
 
 **Channel:** Chase the Drama  
 **Genre:** Revenge, Secret Identity, Female Empowerment, Military Comeback  
